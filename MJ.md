@@ -1,0 +1,3 @@
+# Michael Jackson
+
+**Michael Joseph Jackson, también conocido como el Rey del Pop o por sus iniciales MJ, (29 de agosto de 1958 - 25 de junio de 2009) fue un cantante, compositor, bailarín y filántropo estadounidense. Conocido como el "Rey del pop", Michael fue el artista musical individual más premiado de la historia. Su sonido y estilo han influido en artistas de varios géneros, y sus contribuciones a la música, la danza y la moda lo convirtieron en una figura mundial de la cultura popular durante cuatro décadas.**
